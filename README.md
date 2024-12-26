@@ -1,1 +1,4 @@
-# lop2-
+way ti
+oki
+123
+utj
